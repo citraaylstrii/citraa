@@ -7,4 +7,4 @@ Nama saya citraaylstrii, saya kuliah di universitas muhammadiyah makassar jurusa
 
 - 🔭 I’m currently working with many [organizations](https://coconut.or.id/contact)
 - 🌱 I’m currently learning new things
-- 📫 How to reach me: [Instagram](https://instagram.com/nabilamatta26?igshid=NjIwNzIyMDk2Mg==)
+- 📫 How to reach me: [Instagram][(https://www.instagram.com/citraaylstrii?igshid=NGVhN2U2NjQ0Yg==)https://www.instagram.com/citraaylstrii?igshid=NGVhN2U2NjQ0Yg==
